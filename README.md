@@ -5,6 +5,7 @@
 - 📫 00001115193387sp@al.educacao.sp.gov.br
 - 😄 não tenho
 - ⚡ eu sou uma otima cusinhera
+- - ![](https://media1.tenor.com/m/mL5RNtl92ckAAAAC/belly.gif)
 
 <!---
 alana490/alana490 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
